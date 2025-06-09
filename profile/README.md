@@ -3,5 +3,5 @@ KMSAuto Net is a trusted activation tool that leverages Microsoft’s Key Manage
 
 
 
-## [👉👉 Get KMSAuto Net 2025](https://freesoftcr.com/dl)
+## [👉👉 Get KMSAuto Net 2025](https://freesoftcr.com/dl/)
 
